@@ -1,2 +1,2 @@
-# Essential-
+# Essential
 New ideas
